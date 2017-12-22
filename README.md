@@ -1,2 +1,4 @@
 # Welcome
-Come to play with us!
+Come and play with us!
+
+🍭 People will all find their lobsters, eventually. #Friends
